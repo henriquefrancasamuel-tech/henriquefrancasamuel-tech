@@ -14,7 +14,7 @@ I'm a lyrical lover
 No take me for no filth
 With my sexual physique, jah know me well-built
 Oh me oh my, well well
-Can't you tell
+Can't you tellhttps://media1.tenor.com/m/K0sXT6zFVo0AAAAd/biggie-cheese.gif
 I'm just like a turtle crawling out of me shell
 Gal you captivate my body put me under a spell
 With your Khus Khus perfume
@@ -44,7 +44,7 @@ And if me a the rice well maybe you are the peas
 I'm Boombastic
 Tell me fantastic, touch me on me back
 She says I'm Mr. Ro-
-Mantic, and me fantastic
+Mantic, and me fantastichttps://media1.tenor.com/m/K0sXT6zFVo0AAAAd/biggie-cheese.gif
 She touch me on the back, she says I'm Mr. Boom, boom, boom
 -Bastic
 Tell me fantastic, touch me on the back
